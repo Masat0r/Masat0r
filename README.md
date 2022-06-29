@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **Atom ad Spammer**
 
-- 📫 How to reach me: Not Atom#9822  on discord 
+- 📫 How to reach me: Atom#9105  on discord 
 
 - ⚡ Fun fact Iam gonna give you up 
 <h3 align="left">Connect with me:</h3>
